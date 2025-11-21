@@ -17,6 +17,14 @@
 
 - ⚡ Fun fact **I'm a T-shaped person**
 
+## 📎 Documentos descargables
+
+👉 **[📄 CV Profesional](https://github.com/user-attachments/files/23667573/CV_MELANY.HANCCO_NI.pdf)
+)**  
+👉 **[📘 Trabajo Destacado en PDF](https://github.com/user-attachments/files/23667589/OFICIAL_ESTUDIO.DE.MERCADO.pdf)
+
+
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/melany arleth hancco alcahuaman" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="melany arleth hancco alcahuaman" height="30" width="40" /></a>
